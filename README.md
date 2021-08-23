@@ -1,6 +1,6 @@
 👾 Hi, I’m HyukJin Choi
 
-🤖 Just a JS noob
+🤖 Mostly working on Front-End, still learning Back-End.
 
 🤡 wait for the next update!
 
