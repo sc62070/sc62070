@@ -6,4 +6,4 @@
 
 🤡 wait for the next update!
 
-💩 Contact me through IG @sc62070
+💩 Contact me through IG @st99_0
