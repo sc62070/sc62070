@@ -4,6 +4,6 @@
 
 🌍 Currently working on NFT and web3.0 + creating a website to save the world!!
 
-🤡 wait for the next update!
+🤡 wait for the next update, which is experimenting with NextJS!
 
 💩 Contact me through IG @st99_0
