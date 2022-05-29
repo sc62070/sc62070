@@ -6,4 +6,4 @@
 
 🤡 wait for the next update, which is experimenting with NextJS!
 
-💩 Contact me through IG @st99_0
+💩 Contact me through IG @sc62070
